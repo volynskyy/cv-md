@@ -2,7 +2,7 @@
 
 ## Contacts
 * **location:** Ukraine
-* **phone:** +380 95-312-**-**
+* **phone:** +380...
 * **Email:** herasymdmytro21@gmail.com
 * **Telegram:** https://t.me/Dmyttrro
 * **Discord:** Flokki#1319
